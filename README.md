@@ -6,4 +6,4 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [Meikgrünholz.de](https://xn--meikgrnholz-yhb.de/)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I like Milkshakes ^^
+- ⚡ Fun fact: ...  I like Milkshakes ^^
